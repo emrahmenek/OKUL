@@ -1,1 +1,1 @@
-# Okul
+# SCHOOL
